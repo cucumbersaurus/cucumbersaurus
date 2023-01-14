@@ -1,3 +1,1 @@
-Anyone wants the 'OE Coin'?
-The cucumber coin
-haha
+그냥 평범한 사람
